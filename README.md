@@ -1,1 +1,0 @@
-# Obama-for-President
